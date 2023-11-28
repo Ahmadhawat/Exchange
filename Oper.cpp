@@ -1,1 +1,2 @@
 
+wie besprochen, sende ich dir meine Urlaubstage. Da ich an zwei ganzen Tagen und einem halben Tag in der Woche arbeite (Montag, Mittwoch und Donnerstag), schlug Michail vor, dass meine Urlaubstage an diesen Tagen liegen sollten. Für dieses Jahr habe ich das Recht auf fünf Urlaubstage, wenn man auch den Dezember einbezieht. Die Urlaubstage sind der 27. und 28. Dezember 2023 sowie der 03., 04. und 08. Januar 2024.
